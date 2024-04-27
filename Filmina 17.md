@@ -17,6 +17,3 @@ Para proporcionar una visión clara, resumiremos algunos de los principales bene
 
 1. **Inversión Significativa:** El proyecto requiere una inversión inicial considerable, lo que implica un compromiso financiero significativo.
 
-## Conclusión
-
-En resumen, la probabilidad de éxito del proyecto es muy alta. La ejecución será llevada a cabo por una organización con personal altamente capacitado, dedicado a garantizar el éxito en la creación y puesta en marcha de este sistema. Por lo tanto, a pesar de los costos iniciales, la inversión en este proyecto se justifica ampliamente por los beneficios a largo plazo y la solución integral que proporcionará.
